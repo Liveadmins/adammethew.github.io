@@ -17,7 +17,7 @@ Repeat sales do not occur by chance. They take place because of good relationshi
 
 This makes new buyers happy and turn them into repeat customers. Maintaining a huge base of loyal or repeat consumers means better sales because according to a Bain & Company’s research, repeat customers buy more and make bigger transactions than others. Hence, delivering quality service trainings to customer service representatives or Live Chat Operators, should be a foremost priority of all business owners, if they really want to enhance customer satisfaction. 
 
-Increase in Returns 
+<b>Increase in Returns</b>
 
 The analytics company, SumAll found that organizations having 40 percent repeat customers earn roughly 50 percent more profit than the ones, which have just 10 percent repeat customers. This clearly infers that businesses having better customer retention are generating more revenue. Therefore, delivering quality training s should be at the heart of any service strategy, if an organization wants to retain more customers. 
 
