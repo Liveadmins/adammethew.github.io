@@ -11,11 +11,11 @@ By providing quality and continuous customer service trainings to support staff,
 
 Here we have examined in what ways such training programmes yield benefits for companies. 
 
-Repeat Customers
+<b>Repeat Customers<b/>
 
 Repeat sales do not occur by chance. They take place because of good relationship that companies build with consumers over the period of time by delivering first-rate customer service. Providing top-notch service consistently, however, is not imaginable without delivering customer service trainings to employees. Since trainings enable corporations to improve support staff skills, which enables them to resolve shoppers’ issues in quick time. 
 
-This makes new buyers happy and turn them into repeat customers. Maintaining a huge base of loyal or repeat consumers means better sales because according to a Bain & Company’s research, repeat customers buy more and make bigger transactions than others. Hence, delivering quality service trainings to customer service representatives or Live Chat Operators, should be a foremost priority of all business owners, if they really want to enhance customer satisfaction. 
+This makes new buyers happy and turn them into repeat customers. Maintaining a huge base of loyal or repeat consumers means better sales because according to a Bain & Company’s research, repeat customers buy more and make bigger transactions than others. Hence, delivering quality service trainings to customer service representatives or  <a href="http://www.liveadmins.com/webgreeter-live-chat-service/">live chat operator</a> , should be a foremost priority of all business owners, if they really want to enhance customer satisfaction. 
 
 <b>Increase in Returns</b>
 
@@ -23,7 +23,7 @@ The analytics company, SumAll found that organizations having 40 percent repeat 
 
 Training's help support staff understand and resolve customers’ concerns in first contact, which significantly help business reduce the amount of repeat calls and increase the number of satisfied customers. And satisfied customers have no reason to make purchases from other companies.      
 
-Better Employee Engagement 
+<b>Better Employee Engagement<b/> 
 
 Besides understanding the needs and concerns of customers, trainings also help companies increase employees’ productivity. Since investment in training makes workers feel that corporation is concerned about their progress and development. This will increase job satisfaction and make staff more engaged in their jobs. 
 
